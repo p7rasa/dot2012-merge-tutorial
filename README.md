@@ -1,1 +1,1 @@
-İyi akşamlar!
+İyi geceler!
