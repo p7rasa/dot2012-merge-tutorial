@@ -1,1 +1,1 @@
-hayirli cumalar
+İyi akşamlar!
