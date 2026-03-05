@@ -1,1 +1,1 @@
-gunaydinlar
+afiyet olsun
