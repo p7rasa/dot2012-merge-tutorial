@@ -1,1 +1,1 @@
-İyi geceler!
+afiyet olsun
